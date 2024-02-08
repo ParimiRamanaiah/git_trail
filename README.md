@@ -1,1 +1,1 @@
-Hi i am parimi ramanaiah. just know i am learning to learn gitgub.
+Hi i am parimi ramanaiah. just know i am starting to learn gitgub.
